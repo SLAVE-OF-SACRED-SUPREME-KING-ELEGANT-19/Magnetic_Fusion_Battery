@@ -1,4 +1,4 @@
-# [IN THE NAME OF ALLAH THE GRACIOUS THE MERCIFUL](https://www.youtube.com/watch?v=Pzah_H1FmoE)
+# [IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL](https://www.youtube.com/watch?v=Pzah_H1FmoE)
 
 Magnetic Fusion Battery : an open sourced unlicenced intellectual property/patent: a electromagnetic battery nanotechnology based on magnet and magnetic domain wall
 
