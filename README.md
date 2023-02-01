@@ -1,6 +1,6 @@
 # [IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL](https://www.youtube.com/watch?v=Pzah_H1FmoE)
 
-Magnetic Fusion Battery: An Open Sourced Unlicenced Intellectual Property/Patent WITH PERMISSION OF THE GOD: A Never Ending Of Its Energy Even Tough It Never Charges ElectroMagnetic Battery NanoTechnology Based On Magnet And Magnetic Domain Wall WITH PERMISSION OF THE GOD: [youtu.be/Pzah_H1FmoE](https://youtu.be/Pzah_H1FmoE)
+Magnetic Fusion Battery: An Open Sourced Free Unlicenced Intellectual Property/Patent WITH PERMISSION OF THE GOD: A Never Ending Of Its Energy Even Tough It Never Charges ElectroMagnetic Battery NanoTechnology Based On Magnet And Magnetic Domain Wall WITH PERMISSION OF THE GOD: [youtu.be/Pzah_H1FmoE](https://youtu.be/Pzah_H1FmoE)
 
 [Shopping List Template](https://www.amazon.com/hz/wishlist/ls/34SZNSM35FKD5?ref_=wl_share)
 
