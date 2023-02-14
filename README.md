@@ -1,4 +1,4 @@
-# [IN THE NAME OF THE GOD THE GRACIOUS THE MERCIFUL](https://www.youtube.com/watch?v=Pzah_H1FmoE)
+# [IN THE NAME OF THE GOD THE ELEGANT THE MERCIFUL](https://www.youtube.com/watch?v=Pzah_H1FmoE)
 
 Magnetic Fusion Battery: An Open Sourced Free Unlicenced Intellectual Property/Patent WITH PERMISSION OF THE GOD: A Never Ending Of Its Energy Even Tough It Never Charges ElectroMagnetic Battery NanoTechnology Based On Magnet And Magnetic Domain Wall WITH PERMISSION OF THE GOD: [youtu.be/Pzah_H1FmoE](https://youtu.be/Pzah_H1FmoE)
 
